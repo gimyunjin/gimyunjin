@@ -1,1 +1,1 @@
-hello gg
+gimyunjin!
